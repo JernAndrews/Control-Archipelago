@@ -18,4 +18,8 @@ No mod? No APWorld files? Sounds like a pretty big bug
 
 https://archipelago.gg/ and it's community for doing such a cool thing.
 
+u/InfiniteChaos248 on Reddit - https://www.reddit.com/user/InfiniteChaos248
+
+The Control Wiki - https://control.fandom.com/wiki/Control_Wiki
+
 Me (I've been here the whole time)
